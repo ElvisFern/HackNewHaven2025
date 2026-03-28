@@ -1,1 +1,1 @@
-# HackNewHaven2025
+# HackNewHaven2026
